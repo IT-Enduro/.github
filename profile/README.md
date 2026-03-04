@@ -4,6 +4,6 @@
 
 IT Enduro runs courses for middle+ Developers and DevOps. Our ultimate mission is to provide relevant and in-demand knowledge to the professional community.
 
-We have special offers for corporate clients. All our courses and programs can be adapted to your business needs. For more details [corporate@it-enduro.com](mailto:corporate@it-enduro.com).
+We have special offers for corporate clients. All our courses and programs can be adapted to your business needs. For more details [corporate@it-enduro.com](mailto:corporate@it-enduro.com) or telegram [@it_enduro](https://t.me/it_enduro).
 
 As well we are open to cooperation with top-notch IT professionals and ready to contribute to your promotion as IT speakers.
